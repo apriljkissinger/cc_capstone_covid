@@ -25,7 +25,7 @@ group of websites this data was collected, but in general survey data tends to b
 who are willing to take it.
 
 
-If you have any questions, comments, or concerns, or would just like to chat, please reach out: apriljkissinger@gmai.com
+If you have any questions, comments, or concerns, or would just like to chat, please reach out: apriljkissinger@gmail.com
 
 
 References
